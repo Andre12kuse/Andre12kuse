@@ -1,3 +1,1 @@
-SUP im andre just decided to share some random python codes :)
-anyway if u have any basic python projects you think i can work on please feel free to share 
-enjoy my code:)
+SUP✌️ I'm Andre a programmer working on some projects right now feel free to ask any questions and use my code (they're open source anyway) ;)
